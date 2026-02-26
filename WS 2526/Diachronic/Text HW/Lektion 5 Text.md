@@ -1,0 +1,2 @@
+
+Da war aber ein fremde dort der Grammatik konnte, und er ging zu ihn, und bat ihn, in dem er ihn zu fußen fiel und sich ihn übergab: Gut Tuende lehre mich, sprach er, der kunst der Grammatik. Er aber, 
