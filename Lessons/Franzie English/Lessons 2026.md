@@ -2,7 +2,7 @@
 **PAYMENT THROUGH PAYPAL TO ME** 
 
 ### February 
-Saturday 28th February, 17.00 - 17.40
+Saturday 28th February, 17.00 - 17.40 PAID
 Saturday 14th February, 09.45 - 10.25 PAID 
 
 ### January 

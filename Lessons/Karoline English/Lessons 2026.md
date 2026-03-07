@@ -5,7 +5,7 @@
 
 
 ### February:
-Saturday 28th February, 09.45 - 10.25 
+Saturday 28th February, 09.45 - 10.25 PAID
 
 ### January:
 Saturday 10th January, 09.45 - 10.25 PAID
