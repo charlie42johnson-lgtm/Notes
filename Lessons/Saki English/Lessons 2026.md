@@ -2,7 +2,7 @@
 **PAYMENT THROUGH BETTER ENGLISH** 
 
 ### March:
-
+Saturday 7th March 12.00 - 12.40 
 
 ### February:
 Saturday 28th February 12.00 - 12.40 

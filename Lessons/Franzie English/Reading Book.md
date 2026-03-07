@@ -1,7 +1,10 @@
 
 ### Current: 
 Sherlock Holmes, p.g. 9; "How did my sister die…." 
-A Tall Tale, p.g. 28 
+The Blue Eye p.g  
 
 ### Finished: 
 **ORT:**
+A Tall Tale
+An Australien Adventure
+A Sea Mystery
