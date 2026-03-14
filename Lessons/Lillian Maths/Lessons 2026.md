@@ -2,7 +2,8 @@
 **PAYMENT THROUGH PAYPAL TO ME** 
 
 ### March:
-Saturday 7th March, 09.00 - 09.40
+Saturday 14th March, 09.00 - 09.40
+Saturday 7th March, 09.00 - 09.40 PAID
 
 ### February 
 Sunday 22nd February, 09.00 - 09.40 PAID 
