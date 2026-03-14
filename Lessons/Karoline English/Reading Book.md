@@ -1,3 +1,3 @@
 
 ### Kaspar: 
-pg. 21, Chapter 2
+pg. 30, Chapter 2,
